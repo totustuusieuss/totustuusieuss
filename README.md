@@ -12,5 +12,5 @@ Meu nome é _Vinícius_
 
   @vinii_cavalheri
 
-  ![](https://tenor.com/pt-BR/view/cristiano-ronaldo-ronaldo-ronaldo-siuuu-ronaldo-the-goat-sewy-gif-17616218981871012597)
+  ![](https://media1.tenor.com/m/-YjEinvz7QMAAAAC/bolsonaro-acre.gif)
 
